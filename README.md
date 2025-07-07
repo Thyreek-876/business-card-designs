@@ -39,4 +39,4 @@ Preview my full collection of business card designs here:
 Need a business card that reflects your brand?  
 - Fiverr: https://www.fiverr.com/s/gD846VY
 - Website: https://sites.google.com/view/smiths-freelance-services
-- Email: smithfreelanceservices@gmail.com
+- Email: smithsfreelanceservices@gmail.com
